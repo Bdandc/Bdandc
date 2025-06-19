@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Bdandc
-- 👀 I’m interested in building app
+- 👀 I’m interested in building apps
 - 💞️ I’m looking to collaborate on cool projects
 - 📫 How to reach me hello@bonddesign.co
 
